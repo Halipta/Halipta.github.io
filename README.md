@@ -1,2 +1,1 @@
 #THIS SITE IS NOT TO BE COPIED OR TRANSFERED FOR ANY REASON
-Official Repository Of The Halipta Website
